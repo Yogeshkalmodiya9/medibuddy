@@ -1,0 +1,1 @@
+https://medibuddy.ai.studio/
